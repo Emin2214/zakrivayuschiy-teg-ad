@@ -1,0 +1,1 @@
+https://github.com/Emin2214/zakrivayuschiy-teg-ad.git
